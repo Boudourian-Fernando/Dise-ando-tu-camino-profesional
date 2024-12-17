@@ -1,2 +1,2 @@
-# Dise-ando-tu-camino-profesional
+# Diseñando-tu-camino-profesional
 Las ferias de empleo son el escenario ideal para que estudiantes y creativos presenten su trabajo, conecten con empresas y comprendan las necesidades del mundo profesional. Estas experiencias permiten mostrar habilidades únicas, descubrir nuevas oportunidades y fortalecer la confianza en el propio talento. Participar en ferias laborales es clave para dar los primeros pasos hacia un futuro creativo sólido y lleno de posibilidades.
